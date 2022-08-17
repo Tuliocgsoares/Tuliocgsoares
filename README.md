@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **tuliocgsoares@gmail.com**
 
-- ⚡ Fun fact **I think that i am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
